@@ -67,6 +67,12 @@ These notes were made publicly accessible to classmates and students across mult
 
 ---
 
+## Access the Notes
+
+These notes are also available via [shared drive link](https://drive.google.com/drive/folders/1g0UuVlaXi02hcozXSqLvinrcDW9V6pP-?usp=sharing) for direct download.
+
+---
+
 ## Author
 
 **Khalid A. Mohamed**  
